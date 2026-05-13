@@ -1,4 +1,4 @@
-# 
+# premium Descript for macOS Template | sound-design + echo-removal offers the most advanced Descript for macOS template, with sound-design and echo-removal. Ideal for professional
 
 
 
